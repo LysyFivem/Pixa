@@ -1,3 +1,3 @@
 Pixa carhud
-Pozdrawiam Jasiek
-Red Leaks: https://discord.gg/49263TE8g8
+Pozdrawiam Łysy
+Łysy Leaks:https://discord.gg/JXFtGrKJMs
